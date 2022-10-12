@@ -38,8 +38,8 @@ Have a look ⬇️
 
 
 ##Contributors:
-##Shabaz- @shabazalimalik69
-##Akash-  @AkashKeshari111
+## Shabaz- @shabazalimalik69
+## Akash-  @AkashKeshari111
 ## Ankur- @Ankur982
 ## Sumit- @SumitKDSarkar
 ## Sombir- @sombir5

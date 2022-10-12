@@ -38,11 +38,11 @@ Have a look ⬇️
 
 
 ##Contributors:
-## @shabazalimalik69
-## @AkashKeshari111
-## @Ankur982
-## @SumitKDSarkar
-## @sombir5
+##Shabaz- @shabazalimalik69
+##Akash-  @AkashKeshari111
+## Ankur- @Ankur982
+## Sumit- @SumitKDSarkar
+## Sombir- @sombir5
 
 
 ## THANK YOU ❤️
